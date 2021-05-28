@@ -1,4 +1,4 @@
-### Hi there, I'm [Abdulmalik!](https://github.com/3bood-k) 👋
+### Hi there, I'm [3bood_k!](https://github.com/3bood-k) 👋
 
 ## I'm a Gamer and Developer
 
